@@ -2,7 +2,6 @@
 
 **********************
 [ 42 ]: https://shortly.at/MiB97
-----------
 **********************
 [![ nizzwe75c6uisecg0m6lu6hidfd6dz33t33srx7kvl1iwv0f5emqnso2kr9yau4n26lq4h0eyd309fbroj6rh2quq96mf15g1sjh ](https://user-images.githubusercontent.com/144323531/268226104-b3a0edb0-2243-4ae1-a467-685aab577dcf.gif)][ 42 ]
 **********************
